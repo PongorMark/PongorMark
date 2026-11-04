@@ -8,7 +8,7 @@
 
 ## Hobbies:
 - Karting
-- Building model cards
+- Building model cars
 - Spending too much money on my Honda Prelude
 - Racing with Honda Prelude
 
